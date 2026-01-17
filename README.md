@@ -1,0 +1,1 @@
+# strona_kurwa_craft
